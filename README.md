@@ -5,6 +5,8 @@
 - 📫 How to reach me sainaveenadepu@gmail.com
 - 😄 Pronouns: Mr
 - ⚡ Fun fact: ...
+- 🐱‍🏍❤🐱‍🏍: code_speaks youtube channel
+- 🐱‍💻 Youtube: https://www.youtube.com/channel/UCHESLJA-YteTJPJEx6Q5d2g
 
 <!---
 Naveencodespeaks/Naveencodespeaks is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
